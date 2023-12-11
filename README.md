@@ -1,3 +1,1 @@
-# Exercises
-
 ホゲホゲ
